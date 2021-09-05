@@ -1,4 +1,4 @@
-👋 Hi, I’m Andrew! I'm a pharmacist seeking a fellowship program to further my training as a clinican-researcher.
+👋 Hi, I’m Andrew! 
 
 
 <br/> 📫 My email is amriselli@gmail.com. Feel free to reach out to me with any questions or to connect! 
